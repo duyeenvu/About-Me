@@ -1,5 +1,5 @@
 # Fun facts ˚₊· ͟͟͞͞➳❥
-✱ I am hakf Vietnamese and half Korean
+✱ I am half Vietnamese and half Korean
 
 ✱ I am currently studying Mandarin and studied it throughout high school
 
